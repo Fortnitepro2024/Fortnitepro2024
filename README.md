@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning how to code
 - 📫 How to reach me Discord: _fortnitepro2024_(add underscores before and after then name)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Im funny and rizz up boys more than girls ;)
